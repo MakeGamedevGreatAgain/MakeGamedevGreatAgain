@@ -39,7 +39,7 @@ Please note: if you opt out, you will still see ads on your device, but it will 
 
 ### Children
 
-We do not use the Application to knowingly request data or sell them to children under 13 (and in certain jurisdictions under the age of 16) years of age. If a parent or guardian finds out that his or her child has provided us with information without their consent, he or she should contact us at 1978Valera27Rus@gmail.com.
+We do not use the Application to knowingly request data or sell them to children under 13 (and in certain jurisdictions under the age of 16) years of age. If a parent or guardian finds out that his or her child has provided us with information without their consent, he or she should contact us at ahmethanovalesa@gmail.com.
 
 ### Changes
 
@@ -47,7 +47,7 @@ This privacy policy may be updated from time to time for any reason. We will not
 
 ### Contact us
 
-If you have any questions regarding privacy when using the Application, please contact us by e-mail: 1978Valera27Rus@gmail.com.
+If you have any questions regarding privacy when using the Application, please contact us by e-mail: ahmethanovalesa@gmail.com.
 
 
 
